@@ -1,4 +1,4 @@
-Emad Elfeky
-Biologest 
-studying  central dogma - got some shadwing hours - got soem volunteering hours 
-watched youtube videos to know more about central dogma - used ineed to find  shadowing and volunteering
+Emad Elfeky\
+Biologest\
+Studying the central dogma - Gaining some shadowing hours - Gaining some volunteering hours                                              
+Watching YouTube videos to learn more about the central dogma - Using iNeed to find shadowing and volunteering opportunities/
